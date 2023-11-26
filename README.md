@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Chidi
 - 👀 I’m strongly interested in developing, managing, and improving products.
-- 🌱 I’m currently learning and expanding my knowledge of product management.
+- 🌱 I’m currently learning and expanding my knowledge in product management.
 - 💞️ I’m looking to collaborate on projects/products that bring (measurable) value to humanity/people.
 - 📫 How to reach me, chidiodinanwa@gmail.com or +2348064429679
 
